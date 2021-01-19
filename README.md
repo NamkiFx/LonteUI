@@ -1,2 +1,2 @@
-# LonteUI
-Anda sange? Download plugin lonteUI terbaik :'v
+# Secretly
+Just don't download it!
